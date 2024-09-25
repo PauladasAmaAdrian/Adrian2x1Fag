@@ -1,2 +1,4 @@
 # Adrian2x1Fag
-● vinexs.hs  cascavel,pr
+● @vinexs.hs  
+● cascavel,pr
+● Aluno Alura
